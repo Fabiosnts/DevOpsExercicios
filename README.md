@@ -1,4 +1,4 @@
 Angelina Jolie
 Alvaro Ramos
-Jonh Deph
+Jonh Depp
 Jose Alberto
